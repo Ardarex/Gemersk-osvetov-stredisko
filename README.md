@@ -1,0 +1,1 @@
+# Gemersk-osvetov-stredisko
